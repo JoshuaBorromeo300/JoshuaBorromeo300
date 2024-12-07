@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JoshuaBorromeo300
+- 👋 Hi, I’m Joshua Borromeo
 - 👀 I’m interested in ... Motorcycle, and Basketball
 - 🌱 I’m currently learning ... Coding
 - 💞️ I’m looking to collaborate on ...
