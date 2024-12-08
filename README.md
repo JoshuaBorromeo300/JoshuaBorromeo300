@@ -5,7 +5,7 @@
 - 📫 How to reach me ... joshuaborromeo300@gmail.com on Gmail and Joshua Borromeo on Facebook
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-
+oracle : https://mylearn.oracle.com/ou/favorites
 <!---
 JoshuaBorromeo300/JoshuaBorromeo300 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
